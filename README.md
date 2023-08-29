@@ -1,4 +1,4 @@
-# Namaste-JavaScript-Notess.
+# Namaste-JavaScript-Notes With Session 2 ##
 
 ✅Namaste Javascript Notes Including Season 2 => 🚀 With Akshay Saini
 
